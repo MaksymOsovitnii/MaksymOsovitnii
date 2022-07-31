@@ -1,4 +1,9 @@
-### Hi there 👋
+# :ukraine: :ukraine: :ukraine: Stand With Ukraine :ukraine: :ukraine: :ukraine:
+ 
+### [Click to help in the fight for freedom](https://u24.gov.ua/)
+
+[![Stand With Ukraine](https://www.ciel.org/wp-content/uploads/2022/02/Stand-With-Ukraine.jpg)](https://u24.gov.ua/)
+
 
 <!--
 **MaksymOsovitnii/MaksymOsovitnii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
