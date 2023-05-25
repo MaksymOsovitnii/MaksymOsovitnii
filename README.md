@@ -1,8 +1,8 @@
 # :ukraine: :ukraine: :ukraine: Stand With Ukraine :ukraine: :ukraine: :ukraine:
  
-### [Click to help in the fight for freedom](https://u24.gov.ua/)
+### [Click to help in the fight for freedom](https://d-defender.org/)
 
-[![Stand With Ukraine](https://www.ciel.org/wp-content/uploads/2022/02/Stand-With-Ukraine.jpg)](https://u24.gov.ua/)
+[![Stand With Ukraine](https://www.ciel.org/wp-content/uploads/2022/02/Stand-With-Ukraine.jpg)](https://d-defender.org/)
 
 
 <!--
