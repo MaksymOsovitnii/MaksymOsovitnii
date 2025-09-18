@@ -1,4 +1,4 @@
-# :ukraine: :ukraine: :ukraine: Stand With Ukraine :ukraine: :ukraine: :ukraine:
+# :ukraine: Stand With Ukraine :ukraine:
  
 ### [Click to help in the fight for freedom](https://d-defender.org/)
 
